@@ -1,1 +1,1 @@
-👋 Hi, I’m netroot I really enjoy hacking and developing websites.
+👋 Hi, I’m netroot I like hacking and developing websites.
